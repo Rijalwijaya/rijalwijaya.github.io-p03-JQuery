@@ -1,1 +1,0 @@
-# rijalwijaya.github.io-p03-JQuery
